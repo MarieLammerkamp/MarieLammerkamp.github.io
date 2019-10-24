@@ -16,7 +16,7 @@ Firmenwert der Unternehmen stellt einen immateriellen Vermögensgegenstand dar 
 Images von Produkten, Marken oder Unternehmen gelten als wichtige Determinanten für die Kaufentscheidung von Konsumenten. Daraus ergeben sich für das Unternehmen relevante Ziele für die Unternehmenspolitik, die anhand von Aufbaumaßnahmen für positive Images zu erreichen sind. (Malaka, 1991, S.9). Es ist daraus zu schließen, dass eines der wichtigsten Ziele von Unternehmen der Aufbau einer starken Marke ist. Welchen Zeitaufwand es benötigt ein positives Image zu schaffen, um eine starke Marke aufzubauen,
 kann einzig geschätzt werden und ist von der Unternehmung abhängig. Dafür wichtig sind Markenberührungspunkte. Solche Punkte, die die internen Soll- Nutzenbündel an externe Zielgruppen tradieren, sprich, jenes, welches für den Konsumenten wahrnehmbar ist. Marken sind immateriell, somit nicht greifbar und überaus sensibel. Eine Marke ist schließlich kein Garant für langfristigen Erfolg. Insbesondere das Markenimage ist unsicher und dynamisch. Es ist daher von Wichtigkeit Marken zu pflegen. Dafür zweckmäßig ist die Kommunikation der von dem Unternehmen gelebten Werte.
 
-Warum Werte?
+#Warum Werte?
 
 "Werte geben in einer Welt des Wandels einen Pfad des Richtigen an“
 -Schäfer, B., Zapf, W. (2001)
