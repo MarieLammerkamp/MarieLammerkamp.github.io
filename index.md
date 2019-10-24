@@ -2,7 +2,7 @@
 
 # Eine Hinführung in die Funktion des wertorientierten Marketings.
 
-![Marketing](02.jpg)
+![Marketing](03.jpg)
 
 Cillum nisi sunt adipisicing proident anim ad dolor commodo veniam nostrud laborum qui ut veniam. Occaecat mollit in reprehenderit velit deserunt. Aliquip eiusmod magna minim cillum magna pariatur voluptate. Esse tempor fugiat commodo dolor minim.
 
