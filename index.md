@@ -36,12 +36,21 @@ Zusammenfassend ist zu sagen, dass, die von Unternehmen gelebten Werte, sofern d
 #Literaturverzeichnis
 
 Burmann, C. (2018). Marke: Definition. In: Gabler Wirtschaftslexikon. Zugriff am 04.10.2019, verfügbar unter: [Link](https://wirtschaftslexikon.gabler.de/definition/marke-36974/version-260421)
+
 Kapferer, J.N. (1992). Die Marke – Kapital des Unternehmens. Landesberg-Lech
+
 Kartte, D. (2006). Bewertung und Management von Marken. In: K. Matzler. (2006). Immaterielle Vermögenswerte: Handbuch der intangible Assets. Erich Schmidt Verlag- Berlin
+
 Kernstock, J. (2012). Behavioral Branding als Führungsansatz. In: Tomczak, T., Esch, F., Kernstock, J., Hermann, A. (2012). Behavioral Branding. Gabler Verlag
+
 Levine, Locke, Searls, Weinberger. (1999). The Cluetrain Manifesto. Zugriff am: 16.10.2019. Gefunden über: [Link](https://cluetrain.com/auf-deutsch.html)
+
 Maag, G. (1991). Einleitung und Problemstellung. In: Gesellschaftliche Werte. Beiträge zur sozialwissenschaftlichen Forschung. VS Verlag für Sozialwissenschaften: Wiesbaden
+
 Malaka, B. (1991). Imageorientierte Entscheidungen im Produktmarketing [Band 19]. Fördergesellschaft Produkt-Marketing e.V: Düsseldorf
+
 Schäfers, B., Zapf, W. (2001). Handwörterbuch zur Gesellschaft Deutschlands [2. Auflage]. Springer Fachmedien: Wiesbaden. S. 726 f.
+
 Wala, H. H. (2011). Meine Marke: Was Unternehmen authentisch, unverwechselbar und langfristig erfolgreich macht. Redline Wirtschaft S.37
+
 Welling, M. (2006). Ökonomik der Marke: Ein Beitrag zum Theorienpluralismus in der Markenforschung, S.21 f. Springer: Wiesbaden
