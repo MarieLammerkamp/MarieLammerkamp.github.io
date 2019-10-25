@@ -1,6 +1,6 @@
 # Wie Werte Marken machen.
 
-# Eine Hinführung in die Funktion des wertorientierten Marketings.
+Eine Hinführung in die Funktion des wertorientierten Marketings.
 
 ![Marketing](03.jpg)
 
