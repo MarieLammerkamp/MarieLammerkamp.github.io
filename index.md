@@ -19,7 +19,7 @@ kann einzig geschätzt werden und ist von der Unternehmung abhängig. Dafür 
 ## Warum Werte?
 
 "Werte geben in einer Welt des Wandels einen Pfad des Richtigen an“
--Schäfer, B., Zapf, W. (2001)
+(Schäfer, B., Zapf, W. 2001)
 
 Werte gelten als zentrale Determinanten für das Verhalten von Individuen. Eine tiefe Verwurzelung der Werte in den jeweiligen Gesellschaften ergibt sich in einer Sturheit bezüglich dieser. Werte stellen etwas Langfristiges dar und sind daher schwerlich veränderbar. Allgemein dienen sie dem Menschen dabei sich in die Gesellschaft zu integrieren und vor der sozialen Abgrenzung zu schützen. (Maag, 1991, S.120) Eine solche Funktion kann auf die Unternehmensumwelt übertragen werden. Die Einhaltung gewisser Werte und Normen, ausgelebt durch die Gesellschaft und den Markt, ist notwendig für die, ihm gegenüber gelebte, Akzeptanz und somit das Überleben eines Unternehmens. So ist davon auszugehen, dass nicht-normkonforme Unternehmen die Desintegration zu fürchten haben. Während auf sozialer Ebene Werte und Normen teils schwer äußerlich festzustellen sind, ist es für Unternehmen notwendig ihre Werte an den Tag zu legen. So entwickeln sich Markenführungsmaßnahmen in den sozialen Medien zur Pflicht. Kaum eine technische Innovation konnte die Welt, wie sie zuvor gekannt wurde, so grundlegend neustrukturieren, wie es das Internet tat. (Wala, 2011, S.37) Das „Cluetrain Manifest“ aus 1999 beschrieb daraufhin 95 Thesen für die Unternehmenskultur in dem digitalen Zeitalter. Die erste und elfte These ist insbesondere für das Marketing von Bedeutung. Die erste These bezieht sich darauf, dass Märkte Gespräche seien. Die elfte These soll nun zitiert werden.
 
